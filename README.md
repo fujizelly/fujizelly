@@ -14,3 +14,5 @@ likes﹕video games, video game analysis, drawing n stuff
 ﹒fun facts﹕i usually main healers in any game
 
 ⌣⌣⌣⌣⌣⌣⌣⌣
+
+My ocs are usually 'older men', so if you have daddy issues, I don't mean to do what I do lmfao
