@@ -2,12 +2,12 @@
 
 ╰╮00﹒any pronouns
 
-⊂⊃﹕agender ◞
+⊂⊃﹕agender ◞ pansexual
 
 
 ⌢⌢⌢⌢⌢⌢⌢⌢
 
-I usually hang out in any place, you can freely cuddle or hide behind me!
+I usually hang out in any place, you can freely cuddle or hide behind me! (no matter the gender ^_^)
 
 likes﹕video games, video game analysis, drawing n stuff
 
