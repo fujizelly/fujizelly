@@ -19,4 +19,4 @@ My ocs are usually 'older men', so if you have daddy issues, I don't mean to do 
 
 I act as my pony ocs, so it's often a roulette on how I act
 
-> hi oomfs i got restricted from the 18+ server, haha...
+> hi oomfs i got restricted from the 18+ server, haha... and if you're hella curious, im biologically a female
