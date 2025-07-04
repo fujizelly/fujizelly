@@ -1,22 +1,18 @@
-🍎  azazel's intro !!
+︶ ·̩͙⏝ ͝ 　୨　 ꒰ 　𖤝 　꒱ 　୧ 　 ͝ ⏝ ·̩͙︶ ͝
 
-╰╮00﹒any pronouns
+**Please read before interacting with me! ^_^**
 
-⊂⊃﹕agender ◞ pansexual
+before you interact: 
+
+. I act as my pony ocs, so it's often a roulette on how I act!
+  
+. you can cuddle freely! but please know I don't see it romantically, only platonically / friendly (i dont see the appeal of dating in a pixel game)
+
+. PLEASE whisper, I cannot see what you're seeing because of chat flooding and I often am on another tab
+
+. be nice to me, I type too quickly so I end up making typos ;;
 
 
-⌢⌢⌢⌢⌢⌢⌢⌢
 
-I usually hang out in any place, you can freely cuddle or hide behind me! (no matter the gender ^_^)
-
-likes﹕video games, video game analysis, drawing n stuff
-
-﹒fun facts﹕i usually main healers in any game
-
-⌣⌣⌣⌣⌣⌣⌣⌣
-
-My ocs are usually 'older men', so if you have daddy issues, I don't mean to do what I do lmfao
-
-I act as my pony ocs, so it's often a roulette on how I act
 
 > hi oomfs i got restricted from the 18+ server, haha... and if you're hella curious, im biologically a female
