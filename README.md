@@ -13,6 +13,6 @@ before you interact:
 . be nice to me, I type too quickly so I end up making typos ;;
 
 
-
+-# more on the straw page
 
 > hi oomfs i got restricted from the 18+ server, haha... and if you're hella curious, im biologically a female
